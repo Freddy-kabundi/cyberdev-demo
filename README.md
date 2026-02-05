@@ -6,6 +6,7 @@ Nezhy Mpanzu 2 (Mon deuxieme github)
 Tresor Yuma CHECK
 voici ma contribution : Dan Nkolo
 Stephane
-
+Freddy
+C'est ma contribution, bien qu'en retard: Freddy
 
 
